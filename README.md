@@ -1,3 +1,3 @@
 # mehulskill
 This is my first repository
-Author-Mehul Ramesh(Mr.Me)
+Author-Mehul Ramesh(Pattu and bubu)
